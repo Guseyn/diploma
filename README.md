@@ -1,2 +1,2 @@
 # diploma
-http://guseyn.com/file/pdf/diploma
+http://guseyn.com/file/pdf/diploma (rus)
